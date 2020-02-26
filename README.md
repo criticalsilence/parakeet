@@ -9,6 +9,6 @@ The purely medical perspective on egg donation showcases a highly successful tre
 How adults from egg donation (i.e., those that were conceived in 1984–2000, the early days of egg donation) feel today may be radically different from the next generation. For example, not being told about one's donor origins may carry very different meaning in a context in which nondisclosure and anonymity was the norm than in a time when openness is recommended, anonymity questioned, and contact reasonably possible, as it is today. Therefore, to address the needs of the next generation them from need to facilitate further. However, given that unpredictable complexities can arise, it is also reasonable to wait until there is in fact a child born from the arrangement and that both parties still desire contact once the reality of the child born from the donation sets in psychologically.
 
 ## whats our goal?
-will
+will...
 
 ## technic base
